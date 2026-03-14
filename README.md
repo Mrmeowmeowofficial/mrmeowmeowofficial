@@ -1,3 +1,3 @@
-! [Alt text] (https://tenor.com/view/fire-divider-gif-190506590
+! [Alt text] (https://tenor.com/view/fire-divider-gif-190506590)
 
 
